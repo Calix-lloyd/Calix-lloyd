@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Calix-lloyd
 - 👀 I’m interested in ...music and coding
-- 🌱 I’m currently learning ...BSc CA
+- 🌱 I’m pass out ...BSc CA
 - 💞️ I’m looking to collaborate on ... anything
 - 📫 How to reach me ...lloydcalvin15@gmail.com
 
